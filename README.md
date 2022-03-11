@@ -25,4 +25,4 @@
 
 ### Copy Pasters You Can Copy This But Must Give Credits ...
 
-#### Main Developer = [NOBITA_XD](https://t.me/rawanbots)
+#### Main Developer = [RAWAN](https://t.me/rawanbots)
